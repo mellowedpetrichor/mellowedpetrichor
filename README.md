@@ -3,7 +3,12 @@
 </p>
 
 <p align="right">
-<img src="https://github.com/user-attachments/assets/7ae367da-cab6-4b9d-8435-bda325bddbbb" align="right" width="410" style="margin-left: 15px;" />
+<img src="https://github.com/user-attachments/assets/7ae367da-cab6-4b9d-8435-bda325bddbbb" align="right" width="400" style="margin-left: 15px;" />
   <br>
-<p align="center"> ᴄ+ʜ sᴛʀɪᴄᴛʟʏ ᴡɪᴛʜ ғʀɪᴇɴᴅs/ᴘᴀʀᴛʏ, ᴜɴʟᴇss sᴛᴀᴛᴇᴅ ɪɴ ᴍʏ ᴘᴏɴʏ
+<p align="center"> ifㅤuㅤseeㅤmeㅤjustㅤhangingㅤoutㅤinㅤmyㅤownㅤsolitude,ㅤandㅤifㅤ"ask to c+h"ㅤisㅤmentionedㅤinㅤmyㅤpony,ㅤdropㅤaㅤwhispㅤbeforeㅤdoingㅤsoㅤ(andㅤPLSㅤdoㅤinsteadㅤofㅤbeingㅤthoseㅤtypeㅤofㅤpplㅤwhoㅤjustㅤc+hㅤpplㅤwheneverㅤtheyㅤwantㅤtoㅤwithoutㅤasking)
 <br>
+<br>
+  <img src="https://github.com/user-attachments/assets/5ff3d7ea-cd31-4c70-a3e2-b9926c6e7ef8" width="370">
+<br>
+<br>
+<p align="center"> if you're the type of person who doesn't 
