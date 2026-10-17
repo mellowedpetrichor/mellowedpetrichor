@@ -3,7 +3,7 @@
 </p>
 
 <p align="right">
-<img src="https://github.com/user-attachments/assets/7ae367da-cab6-4b9d-8435-bda325bddbbb" align="right" width="375" style="margin-left: 15px;" />
+<img src="https://github.com/user-attachments/assets/7ae367da-cab6-4b9d-8435-bda325bddbbb" align="right" width="405" style="margin-left: 15px;" />
   <br>
 <p align="center"> ifㅤuㅤseeㅤmeㅤjustㅤhangingㅤoutㅤinㅤmyㅤownㅤsolitude,ㅤandㅤifㅤ"ask to c+h"ㅤisㅤmentionedㅤinㅤmyㅤpony,ㅤdropㅤaㅤwhispㅤbeforeㅤdoingㅤsoㅤ(andㅤPLSㅤdoㅤinsteadㅤofㅤbeingㅤthoseㅤtypeㅤofㅤpplㅤwhoㅤjustㅤc+hㅤpplㅤwheneverㅤtheyㅤwantㅤtoㅤwithoutㅤasking)ㅤ.ㅤdon'tㅤbotherㅤaskingㅤifㅤI'mㅤwithㅤfriendsㅤ/ㅤparty
 <br>
