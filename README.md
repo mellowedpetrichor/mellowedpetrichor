@@ -5,12 +5,12 @@
 <p align="right">
 <img src="https://github.com/user-attachments/assets/7ae367da-cab6-4b9d-8435-bda325bddbbb" align="right" width="305" style="margin-left: 15px;" />
   <br>
-<p align="center"> ifㅤuㅤseeㅤmeㅤjustㅤhangingㅤoutㅤinㅤmyㅤownㅤsolitude,ㅤandㅤifㅤ"askㅤtoㅤc+h"ㅤisㅤmentionedㅤinㅤmyㅤpony,ㅤdropㅤaㅤwhispㅤbeforeㅤdoingㅤsoㅤ(andㅤPLSㅤdoㅤinsteadㅤofㅤbeingㅤthoseㅤtypeㅤofㅤpplㅤwhoㅤjustㅤc+hㅤpplㅤwheneverㅤtheyㅤwantㅤtoㅤwithoutㅤasking)ㅤ.ㅤdon'tㅤbotherㅤaskingㅤifㅤI'mㅤwithㅤfriendsㅤ/ㅤparty
+<p align="center"> ιfㅤυㅤѕєєㅤмєㅤjυѕтㅤнαиgιиgㅤσυтㅤιиㅤмуㅤσωиㅤѕσlιтυdє,ㅤαи∂ㅤιfㅤ"αѕкㅤтσㅤc+н"ㅤιѕㅤмєитισиєdㅤιиㅤмуㅤρσиу,ㅤdяσρㅤαㅤωнιѕρㅤвєfσяєㅤdσιиgㅤѕσㅤ(αиdㅤρlѕㅤdσㅤιиѕтєα∂ㅤσfㅤвєιиgㅤтнσѕєㅤтуρєㅤσfㅤρρlㅤωнσㅤc+нㅤωнєиєνєяㅤтнєуㅤωαитㅤтσㅤωιтнσυтㅤαѕкιиg)ㅤ.ㅤdσи'тㅤвσтнєяㅤαѕкιиgㅤιfㅤι'мㅤωιтнㅤfяιєи∂ѕㅤ/ㅤραяту
 <br>
 <br>
   <img src="https://github.com/user-attachments/assets/5ff3d7ea-cd31-4c70-a3e2-b9926c6e7ef8" width="370">
 <br>
-<p align="center"> ifㅤyou'reㅤtheㅤtypeㅤofㅤpersonㅤwhoㅤdoesn'tㅤdoㅤwellㅤwithㅤconversations,ㅤorㅤjustㅤaㅤstraightㅤupㅤdryㅤtexter,ㅤjustㅤofferingㅤyourㅤquietㅤpresenceㅤisㅤenoughㅤforㅤme,ㅤthoughㅤasㅤaㅤsmallㅤwarning,ㅤIㅤcanㅤbeㅤveryㅤselectiveㅤandㅤcanㅤblockㅤfreely
+<p align="center"> ιfㅤуσυ'яєㅤтнєㅤтуρєㅤσfㅤρєяѕσиㅤωнσㅤdσєѕи'тㅤdσㅤωєllㅤωιтнㅤcσиνєяѕαтισиѕ,ㅤσяㅤנυѕтㅤαㅤѕтяαιgнтㅤυρㅤdяуㅤтєχтєя,ㅤנυѕтㅤσffєяιиgㅤуσυяㅤqυιєтㅤρяєѕєиcєㅤιѕㅤєиσυgнㅤfσяㅤмє,ㅤтнσυgнㅤαѕㅤαㅤѕмαllㅤωαяиιиg,ㅤιㅤcαиㅤвєㅤνєяуㅤѕєlєcтινєㅤαи∂ㅤcαиㅤвlσcкㅤfяєєlу
 </p>
 
 <br>
