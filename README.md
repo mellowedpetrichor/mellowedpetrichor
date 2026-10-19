@@ -23,7 +23,7 @@
 </p>
 
 <p align="center">
-αтαвσσкㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ѕтяαωραgєㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤlιѕтσgяαρну
+αтαвσσкㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤѕтяαωραgєㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤlιѕтσgяαρну
 
 <p align="center">
 <img width="1018" height="191" src="https://github.com/user-attachments/assets/bf62f2a3-414b-41d6-ac42-7e4757ca442b" />
