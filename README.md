@@ -27,7 +27,7 @@
 </p>
 
 <p align="center">
-𓊆ㅤO1ㅤ𓊇ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤ𓊆ㅤO2ㅤ𓊇ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓊆ㅤO3ㅤ𓊇
+𓊆ㅤO1ㅤ𓊇ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ𓊆ㅤO2ㅤ𓊇ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓊆ㅤO3ㅤ𓊇
 
 <p align="center">
 <img width="1018" height="191" src="https://github.com/user-attachments/assets/bf62f2a3-414b-41d6-ac42-7e4757ca442b" />
